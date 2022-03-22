@@ -1,1 +1,1 @@
-https://dif-h4.github.io/rsschool-cv/cv
+https://dif-h4.github.io/rsschool-cv/
